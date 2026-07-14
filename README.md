@@ -1,6 +1,7 @@
-# Hall-of-Shame
+# Spreading Awareness
 Inspo or Copiers are Posted Here of my own or friend’s Cosplays. Originals are Displayed First. Hey Please Don't like. you know... don't do this? People take time and effort to make their own styles.
 
+I didn't want to do this, but lately people have been inspoing off of my friend's ponies and my own. Even off if frequents. Let's Tone this Inspo trend down a bit please.
 
  <image src="https://github.com/user-attachments/assets/159a6674-b792-454e-875c-dc3766dbd4c9"/>
 </p>
